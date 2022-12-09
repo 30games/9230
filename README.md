@@ -1,2 +1,2 @@
 # 9230.github.io
-Unblocked Games!
+Welcome to 9230 Unblocked Games! Unblocked Games to your heart's content.
